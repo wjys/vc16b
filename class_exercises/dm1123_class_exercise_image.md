@@ -5,7 +5,7 @@
 #### Tisch School of the Arts • Game Design Department
 
     Winnie Song • jys325@nyu.edu • Fall 2016
-    Tuesday • 4:55-7:35PM • Room: 2MTC MAGNET 830
+    Thursday • 9:30-12:15PM • Room: 2MTC MAGNET 825
 
 ---
 
